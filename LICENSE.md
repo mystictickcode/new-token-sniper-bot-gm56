@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency new token sniper bot | new-token-detection + bundle-transactions, the #1 new token sniper bot. Includes new-token-detection and
 
 
 
